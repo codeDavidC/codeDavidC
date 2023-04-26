@@ -9,9 +9,7 @@ Check out my links below!
 
 Feel free to connect: 
 
-  Instagram: [@theprocesscreative ](https://www.instagram.com/theprocesscreative/)
-  Dribbble: [Dribble-dav_cha](https://dribbble.com/dav_cha)
-  Behance: [Behance-davidchavez2020](https://www.behance.net/davidchavez2020)
+[IG:@theprocesscreative ](https://www.instagram.com/theprocesscreative/) | [Dribble:dav_cha](https://dribbble.com/dav_cha) | [Behance:davidchavez2020](https://www.behance.net/davidchavez2020)
       
       
 
